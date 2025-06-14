@@ -183,7 +183,7 @@ Postdoc – University of Pennsylvania
 
 💼 *Currently a Data Scientist applying ML across Healthcare, Finance & Physics*  
 🔗 [LinkedIn](https://www.linkedin.com/in/poulami-nandi-a8a12917b/)  
-📚 [Google Scholar](https://scholar.google.com/citations?user=XXXXX)
+📚 [Google Scholar](https://scholar.google.co.in/citations?user=bOYJeAYAAAAJ&hl=en)
 
 ---
 
